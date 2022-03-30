@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @NiyoOnTikTok
--Je fais du codes pour discord
+-Hi im Niyo Hello I develop tools
+Tiktok:ni._.yo sub please
